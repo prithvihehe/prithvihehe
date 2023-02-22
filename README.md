@@ -2,7 +2,7 @@
 
 Working on becoming a Full Stack Web developer
 
-Feel free to ping on me on : [My Linkedin](www.linkedin.com/in/prithvi-dutta) 
+Feel free to ping on me on : [My Linkedin](https://www.linkedin.com/in/prithvi-dutta) 
                        and   [My Instagram](https://www.instagram.com/its.prithvi/)
 #
 Im currently an undergrad student at IIT(BHU), Varanasi
