@@ -10,7 +10,7 @@ A passionate self learner  who likes working with Web Technologies
 
 Not only a Tech Enthusiast 👨‍💻 !!
 
-I also love exploring Stocks and business case studies as well. Here it is 👉 prithvihehe
+I also love exploring Stocks and Business case studies. Here it is 👉 prithvihehe
 
 Got some Idea to work on ? 😃 Let's Explore ! 
 
