@@ -1,16 +1,19 @@
-### Hi there 👋
+###                          Prithvi Dutta
 
-<!--
-**prithvihehe/prithvihehe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Working on becoming a Full Stack Web developer
 
-Here are some ideas to get you started:
+Feel free to ping on me on : [My Linkedin](www.linkedin.com/in/prithvi-dutta) 
+                       and   [My Instagram](https://www.instagram.com/its.prithvi/)
+#
+#
+#
+#Im currently an undergrad student at IIT(BHU), Varanasi
+A passionate self learner  who likes working with Web Technologies  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Not only a Tech Enthusiast 👨‍💻 !!
+
+I also love exploring Stocks and business case studies as well. Here it is 👉 prithvihehe
+
+Got some Idea to work on ? 😃 Let's Explore ! 
+
+
